@@ -1,5 +1,5 @@
-# 💫 About Me:
-short&sweet :>
+# 💫 About Me: 17 and an enthusiast, trying to bridge the gap btwn comms and tech :)
+ 
 
 
 ## 🌐 Socials:
